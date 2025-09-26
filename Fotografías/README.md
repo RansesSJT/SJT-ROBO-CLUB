@@ -1,6 +1,7 @@
 # Fotos
 ## Equipo 
-![IMG-20250806-WA0089](https://github.com/user-attachments/assets/c4796ba3-6a4c-4b16-a62c-55137e2fd8df)
+![Imagen de WhatsApp 2025-09-26 a las 03 39 41_b8caa377](https://github.com/user-attachments/assets/8987b1d4-3ad5-435d-9fde-4f4fdc0f98ab)
+
 ## Auto
 ![IMG-20250802-WA0006](https://github.com/user-attachments/assets/9d3a46cc-49ce-4878-b0ee-ea134ae4e159)
 ![IMG-20250802-WA0007](https://github.com/user-attachments/assets/8023c6a8-c6d0-4620-9304-9c9d85e1ebf0)
