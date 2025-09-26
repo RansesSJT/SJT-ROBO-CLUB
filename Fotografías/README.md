@@ -3,9 +3,8 @@
 ![Imagen de WhatsApp 2025-09-26 a las 03 39 41_b8caa377](https://github.com/user-attachments/assets/8987b1d4-3ad5-435d-9fde-4f4fdc0f98ab)
 
 ## Auto
-![IMG-20250802-WA0006](https://github.com/user-attachments/assets/9d3a46cc-49ce-4878-b0ee-ea134ae4e159)
-![IMG-20250802-WA0007](https://github.com/user-attachments/assets/8023c6a8-c6d0-4620-9304-9c9d85e1ebf0)
-
-![IMG-20250802-WA0005](https://github.com/user-attachments/assets/c7adaafb-4b5c-4bc7-96fb-961130a7fabe)
-![IMG-20250802-WA0004](https://github.com/user-attachments/assets/3a79cdef-af20-478e-8aa3-31c858155734)
-![IMG-20250802-WA0003](https://github.com/user-attachments/assets/fdf2a04c-9736-42c8-8ab9-9bf0d1e7a2d7)
+![Foto c1](https://github.com/user-attachments/assets/7004a5ed-cf57-4cd6-aa5a-8c46c34e772c)
+![Foto c2](https://github.com/user-attachments/assets/62e701b5-aa8b-410a-8bf5-d989a8c3ec4e)
+![Foto c3](https://github.com/user-attachments/asse![Foto c1](https://github.com/user-attachments/assets/1a479cf5-be1d-4284-ae54-9e39a1f47f25)
+ts/a9d4d5d4-3ba8-44e7-b6b7-7d56f6bb295c)
+![Foto c4](https://github.com/user-attachments/assets/fd1f28de-296d-4f03-b493-bbc4419fb47f)
